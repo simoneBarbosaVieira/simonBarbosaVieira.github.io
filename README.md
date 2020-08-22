@@ -1,1 +1,1 @@
-http://simonBarbosaVieira.github.io
+https://simonebarbosavieira.github.io/simonBarbosaVieira.github.io/.
